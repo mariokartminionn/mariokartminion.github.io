@@ -4,11 +4,7 @@
 **9-Campion**
 
 ***socials***
-
 [instagram](https://www.instagram.com/miafarquillo/)
-
-[spotify](https://open.spotify.com/playlist/1ZrReKU0KJF0sG9k4nKNI5?si=bgdz3XYoR7OYURGGYQ6izQ&nd=1)
-
 [facebook](https://www.facebook.com/miafranchesca.arquillo/)
 
 omg i think slay😍😘
