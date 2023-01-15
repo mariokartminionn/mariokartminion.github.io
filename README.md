@@ -4,8 +4,8 @@
 **9-Campion**
 
 ***socials***
-[instagram](https://www.instagram.com/miafarquillo/)
-[facebook](https://www.facebook.com/miafranchesca.arquillo/)
+1. [instagram](https://www.instagram.com/miafarquillo/)
+2. [facebook](https://www.facebook.com/miafranchesca.arquillo/)
 
 omg i think slay😍😘
 
