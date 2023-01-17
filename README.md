@@ -1,8 +1,6 @@
 # mariokartminion.github.io
 *Mia Franchesca F. Arquillo*
 
-ay napindot sorry
-<iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/4lNbv3ockMWXuY3VHVPGID?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 <iframe style="border-radius:12px" src="https://open.spotify.com/embed/playlist/2IZB4yYytGIJGdCUeUXWca?utm_source=generator" width="100%" height="352" frameBorder="0" allowfullscreen="" allow="autoplay; clipboard-write; encrypted-media; fullscreen; picture-in-picture" loading="lazy"></iframe>
 ## ***socials***
 - [instagram](https://www.instagram.com/miafarquillo/)
