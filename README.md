@@ -21,5 +21,5 @@ hello po
 4. dinedecline palagi ang calls ko😡
 5. hindi ako ung crush nya (very not slay of her talaga)
 
-ryan reynolds🧎‍♀️🧎‍♀️🧎‍♀️
 ![image](https://user-images.githubusercontent.com/122507523/212782940-14361f99-1b4f-4135-81d3-a28c57874b63.png)
+ryan reynolds🧎‍♀️🧎‍♀️🧎‍♀️
