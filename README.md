@@ -29,6 +29,11 @@ kunwari sa aking ung trophy
 
 ![image](https://user-images.githubusercontent.com/122507523/212786525-f8cf0246-8447-42b6-b544-78c239580c40.png)
 
+luvitttt
+
+![image](https://user-images.githubusercontent.com/122507523/213611882-c2304c5f-1bc1-406e-bf06-a934fa2aceee.png)
+
+
 mga ate girls
 
 ![image](https://user-images.githubusercontent.com/122507523/212786588-c2b5d459-d03d-4ff5-9bd7-1170ba7863af.png)
